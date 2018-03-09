@@ -1,0 +1,7 @@
+# Site settings
+title: Esoteric Rapture
+description: Ameliorate Consciousness
+keywords: Philosophy, Blogging, Poetry
+author: Esoteric Rapture
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "" # the base hostname & protocol for your site

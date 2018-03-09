@@ -1,0 +1,59 @@
+---
+title:  "Mumbai Diaries"
+subtitle: "It's always a bit messy"
+author: "Abhiruk Bhattacharyya"
+avatar: "img/authors/abhiruk.png"
+image: "img/mumbai-diaries.png"
+date:   2018-03-07 12:12:12
+---
+
+### Mumbai Diaries.
+.  
+.  
+
+Sometimes it so happens that in one of the most populous cities of the world, you end up realizing at nearly midnight that you don't have a 
+place to crash in. Say shitty friends or a victim of unfortunate circumstances; but at that instance, you know you're simply... fucked.
+
+.
+
+It's a lovely feeling when you know that you got a couple of hours to pass on the streets maybe but you being tired from the day doesn't 
+help with things. So, you do the next logical thing.
+You take your fat wallet off the jeans and punch and kick it but you know you ain't got the cash either to rent a fancy room. You know you 
+got no other options as your phone's about to die as well. You look at the sky and you start laughing.
+
+.
+
+That's when you look around at the crowd of people around you and you do the "most logical thing".
+
+.
+
+'Hey. I'm visiting the city here for a couple days. Came to tour it you know. Yeah, I shoot around pretty much. Been also writing a book.'
+
+.
+
+And ten minutes later, you're off with a stranger to his friend's flat who's got this rad party going on and you don't need me to tell that 
+where there are parties, there are people.
+
+.
+
+So, you basically talk, communicate and drink everyone's favourite rum while being stacked in rooms with bright lights and smoke flying 
+around. You find some cute eyes but you decide that it's better to just stick to the drink for the night. That's when you meet someone who 
+takes you up to be his next best friend and an hour later, you get a nice comfy bed to crash in and fresh herbs from unknown hill stations 
+to smoke.
+
+.
+
+You have a nice night chatting about the future of the country and how everything's shitty even though it's not. You nod along with your 
+host as he criticizes the government and then sleep like a log after it; waking up, just in time to catch the last local before your 
+precious leg-space is sacrificed. And well, a few hours later with more than a hundred brilliant photographs, you end up on a train back 
+home, exhausted yet strangely rejuvenated.
+
+.
+
+So who tells you that you can't have a hell of a night broke in a large metropolitan city? Because I and Mumbai definitely disagree.
+
+.
+
+.
+
+~ Abhiruk B.
